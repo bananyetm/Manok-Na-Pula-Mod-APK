@@ -1,4 +1,4 @@
-# Manok Na Pula MOD APK Unlocked All Chicken Max Level 1000 Unlimited Money Download Free For Android
+# Manok Na Pula MOD APK Unlocked All Chicken Max Level 1000 Download Free For Android
 
 ## What is Manok Na Pula?
 
